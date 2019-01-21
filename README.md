@@ -1,2 +1,0 @@
-# Courses
-Summary of coursework
